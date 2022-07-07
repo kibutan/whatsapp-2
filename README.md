@@ -1,3 +1,3 @@
-https://youtu.be/6fNy0iD3hsk?t=39561
+https://youtu.be/6fNy0iD3hsk?t=39678
 
-10:59:21
+11:01:18
